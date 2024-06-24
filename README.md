@@ -1,2 +1,2 @@
 # Karthi-dreamer
-It is a app development
+I am a app development
