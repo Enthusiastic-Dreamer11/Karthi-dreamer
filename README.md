@@ -1,2 +1,4 @@
 # Karthi-dreamer
-I am a app development
+he was a grasshopper specialist
+he cheated on boys on his birthday
+
